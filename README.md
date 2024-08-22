@@ -12,4 +12,5 @@ Meu nome é Tauani Vitoria
 
 @tauanivps
 
-![descrição do GIF](link GIF do Tenor)
+![20d6](https://github.com/user-attachments/assets/5f8961ec-19da-42dc-b308-08200d511c30)
+
